@@ -1,0 +1,1 @@
+# gizli-klas-r-not-defteri
